@@ -1,4 +1,4 @@
-# ![image](https://user-images.githubusercontent.com/79745507/148042501-0305c2a7-c5ef-436f-97a7-29f8e7c1aa8a.png)
+# ![image](https://cdn.discordapp.com/attachments/838700484185292820/927961936883236864/unknown.png)
 
 # About This Project
 
